@@ -1,0 +1,1 @@
+you need to get a backup SSD/HDD external drive to make sure you have backups of all your digital media, malware can have an affect of all the time you put in on downloading all the media, and you losing it all because you were caught with your pants down, and it had access to your main drive of media, and it encrypted it all.

@@ -1,0 +1,1 @@
+you need to get a spare Computer if possible, you don't want to contaminate your personal device, with a device that is most likely going to get malware injected inside of it with the software you potentially download. 
